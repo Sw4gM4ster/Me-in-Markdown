@@ -1,5 +1,5 @@
-# Me in Markdown
+# Me in Markdown - 2026
 
 ## Letter to Mr. Aiello
 ##### Hello Mr. Aiello, this is my second year in highschool and also my second year at **Chatsworth Charter Highschool**. I took *AP Computer Science Principles* last year with Mr.Levin like many of your students which I had lots of fun in and hope to do the same in your class this year. 
-##### I was born in ***Seoul, South Korea*** but only stayed a couple months, a year at most. I then moved to ***Atlanta, Georgia*** and lived there until I was 7 years old. I spent my childhood in Georgia and enjoyed most of it. I
+##### I was born in ***Seoul, South Korea*** but only stayed a couple months, a year at most. I then moved to ***Atlanta, Georgia*** and lived there until I was 7 years old. I spent my childhood in Georgia and enjoyed most of my time there. When I first moved to California my grandparents stayed in Georgia and I would go visit during summer. But after a while they too moved to California and still live with us to this day. After moving to California I took an interest in soccer and played at school, after school, and really anytime I could. But that phase ended pretty quick after about two years and I started skating. This is one of my hobbies that I have been interested in on and off
